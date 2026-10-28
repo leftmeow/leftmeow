@@ -2,7 +2,7 @@
 
 我是 左喵LeftMeow。
 
-你可以用以下方式与我取得联系
+你可以用以下方式与我取得联系  
 📮邮箱：
 leftmeow@outlook.com  
 leftmeow@tuta.io
